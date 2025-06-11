@@ -1,3 +1,3 @@
 # CommunityClassroom1-Git
-Gyarina Rauniyar working with Garima Rauniyar.
+Gyarina Rauniyar is working with Garima Rauniyar.
 //
